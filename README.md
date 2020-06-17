@@ -34,7 +34,11 @@
 
 <a href="http://88388j.com/" target="new">夜色直播（老牌直播）</a>
 
+<a href="http://my01.ink/1FkkAxXt=m?icode=H8U1Q0/" target="new">蜜柚直播（小视频直播）</a>
 
+<a href="https://normal.zhtldz.com?puid=1020162586/" target="new">蝶恋花直播</a>
+
+<a href="http://069.tv/" target="new">小甜甜直播（赠送金币邀请码HE37A）</a>
 
 
 
@@ -46,6 +50,23 @@
 <a href="https://clappd.me?p=135DNQ" target="new">草榴短视频（国内IP打开手机打开）</a>
 
 <a href="https://share.91didi.me/index.php/?aff=a7fV" target="new">91滴滴（基于共享的线下应召平台.邀请码a7fV）</a>
+
+<a href="https://shared.f46nc.info/landingdownload/?channelCode=share&invitation_code=SY6Z8X" target="new">本色视频（抖音模式APP）</a>
+
+<a href="https://michen.qmlvh8.club/xhd3682.html?pkg=cuke0347&accountCode=666&inviteCode=PNXQM6#/" target="new">蜜橙视频（APP）</a>
+
+<a href="https://55xiuse.best/?_s=B7ZD6K" target="new">秀色视频（原创视频内容）</a>
+
+<a href="https://health15.icu/?utm_source=vdoshare&utm_medium=ios2&channelCode=shareios2" target="new">健健康康视频（免费无限制）</a>
+
+<a href="https://share.lts.tips?code=zfX" target="new">撸透社视频（原创内容）</a>
+
+<a href="https://8wztyu.579app.cn/5f0ezl4x.html?chan_key=downloadEx&invite_code=0VEREM&_t=kbjgfcdb&">香蕉视频（原创内容）</a>
+
+
+
+
+
 
 
 
