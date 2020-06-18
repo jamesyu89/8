@@ -2,7 +2,7 @@
 打开看精品导航站回家地址
 更新最及时，最全的成人情色APP与直播APP大全
 
-<a href="www.dakaikan.com" target="new">打开看精品导航站</a>
+<a href="https://www.dakaikan.com" target="new">打开看精品导航站</a>
 
 <a href="https://t.me/joinchat/NA4mgEdUGxx0xSnYPxVkxQ" target="new">打开看官方TG群（问题反馈，新站添加）</a>
 
