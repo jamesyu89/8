@@ -26,7 +26,7 @@
  
 <a href="http://yb996.cn/5036598" target="new">小红桃直播（原亚博直播）</a>
 
-<a href="http://lr111.xyz/share/8876753" target="new">恋人直播（新平台支持跳蛋）</a>
+<a href="http://mw444.xyz/share/8876753" target="new">恋人直播（新平台支持跳蛋）</a>
 
 <a href="http://1366845.com" target="new">小仙女（赠送金币邀请码424CH）</a>
 
