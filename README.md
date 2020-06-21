@@ -8,7 +8,7 @@
 
 直播APP
 
-<a href="http://tg.cqoyn.com?parent_icode=9vWInv" target="new">米老鼠直播（原星恋主播基本都在这里）</a>
+<a href="http://tg.cqoyn.com?parent_icode=9vWInv" target="new">米老鼠直播 被查关闭（原星恋主播基本都在这里）</a>
 
 <a href="http://0s4l.com/36610205" target="new">小奶猫直播（原小姐姐直播）</a>
 
@@ -16,7 +16,7 @@
 
 <a href="http://danvpo.cn/gk15b2" target="new">咪狐直播</a>
 
-<a href="http://1.172tu1.com/u/8749906" target="new">小酒窝直播（原172直播）</a>
+<a href="http://1.172tu1.com/u/8749906" target="new">小酒窝直播 被查关闭（原172直播）</a>
 
 <a href="http://22051m.com" target="new">爱爱你直播（赠送金币邀请码9AWTK）</a>
 
@@ -28,7 +28,7 @@
 
 <a href="http://mw444.xyz/share/8876753" target="new">恋人直播（新平台支持跳蛋）</a>
 
-<a href="http://1366845.com" target="new">小仙女（赠送金币邀请码424CH）</a>
+<a href="http://1366845.com" target="new">小喵直播 原小仙女（赠送金币邀请码424CH）</a>
 
 <a href="http://515o.tv" target="new">爱の彩互动直播（赠送金币邀请码424CH）</a>
 
@@ -38,7 +38,7 @@
 
 <a href="https://normal.zhtldz.com?puid=1020162586/" target="new">蝶恋花直播</a>
 
-<a href="http://069.tv/" target="new">小甜甜直播（赠送金币邀请码HE37A）</a>
+<a href="https://069a.tv/" target="new">小姐姐直播 原小甜甜（赠送金币邀请码HE37A）</a>
 
 
 
