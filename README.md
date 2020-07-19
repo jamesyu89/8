@@ -1,6 +1,4 @@
-# 8
-打开看精品导航站回家地址
-更新最及时，最全的成人情色APP与直播APP大全
+
 
 <a href="https://www.dakaikan.com" target="new">打开看精品导航站</a>
 
@@ -53,7 +51,6 @@
 
 
 
-成人APP
 
 <a href="https://clappd.me?p=135DNQ" target="new">草榴短视频（国内IP打开手机打开）</a>
 
